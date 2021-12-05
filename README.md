@@ -1,1 +1,1 @@
-# Karinthy Csibebál - eFaktor Vote - 9EKNY
+# Karinthy Diákvállalkozás Közönségi Szavazás
